@@ -37,7 +37,7 @@
 英语四六级证书
 
 ## 专业博客发表
-https://home.cnblogs.com/u/zlyyds/
+[https://home.cnblogs.com/u/zlyyds/](https://www.cnblogs.com/zlyyds/)
 
 ## 自我评价
 
